@@ -1,2 +1,2 @@
-- 👋 Hi, I’m sudhakarPadala@HBC
+- 👋 Hi, I’m SudhakarPadala@HBC
 
